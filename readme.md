@@ -1,1 +1,1 @@
-# linusg.com
+[linusg.com](https://linusg.com)
